@@ -8,7 +8,7 @@
 
 • 🎯 High self-disciplined with a constant drive for professional excellence.
 
-• 🏆 My latest project was inspired by WIX, **check it out**, it has everything! [Webix](https://webix.onrender.com)
+• 🏆 My latest project was inspired by Monday, **check it out**, it has everything! [Anyday](https://anyday-za1z.onrender.com/)
 
 • 📫 You can reach me at **harelnatan7@gmail.com**
 
